@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with MEV-optimized new token sniper bot | token-launch-monitoring + liquidity-sniping, the #1 new token sniper bot. Includes token-launch-monitoring and
 
 
 
